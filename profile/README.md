@@ -10,7 +10,8 @@
 🍿 Fun facts - what does your team eat for breakfast?
 🧙 Remember, you can do mighty things with the power of [Markdown](https://docs.github.com/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
 -->
-Venture Capital 
+A collective built on learning loving and growig 
 Any and all advice is greatly appreciated 
-Light Spreaders inc.
-
+https://gratefulhedge.com
+We don't eat enough we work
+Thanks and Stay Grateful ~ Stay Gangster
