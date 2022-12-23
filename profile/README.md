@@ -10,8 +10,8 @@
 🍿 Fun facts - what does your team eat for breakfast?
 🧙 Remember, you can do mighty things with the power of [Markdown](https://docs.github.com/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
 -->
-A collective built on learning loving and growig 
-Any and all advice is greatly appreciated 
-https://gratefulhedge.com
-We don't eat enough we work
-Thanks and Stay Grateful ~ Stay Gangster
+A collective built on Learning Markets and Blockchain
+Any and all who are into Marketas Blockchain and Code are welcome
+https://gratefulgangsters@gmail.com
+Always on the Block
+Stay Grateful ~ Stay Gangster
