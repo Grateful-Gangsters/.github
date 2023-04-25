@@ -11,6 +11,6 @@
 🧙 Remember, you can do mighty things with the power of [Markdown](https://docs.github.com/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax)
 -->
 A collective built on learning Markets Blockchain and Code
-https://gratefulgangsters@gmail.com
+https://gratefulgangsters.dao@ethermail.io
 Always on the Block
 Stay Grateful ~ Stay Gangster
