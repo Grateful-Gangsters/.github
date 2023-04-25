@@ -1,2 +1,2 @@
 # .github
-Liberating Deadheads Globally 
+Collective focused on markets, code and blockchain
